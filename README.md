@@ -2,3 +2,4 @@
 GitHub itu asik lo <br>
 Github menyenangkan <br>
 GitHub bikin hidup duppp <br>
+Aku hari ini belajar Merge <br>
